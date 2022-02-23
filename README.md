@@ -7,6 +7,8 @@
 
 - ⚡ Fun fact **I like Football**
 
+<img align="right" alt="jpg" width="250px" src="https://c.tenor.com/M9E5UbWWy30AAAAC/luciano-luciano-neves.gif" />
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/alex andrade" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="alex andrade" height="30" width="40" /></a>
