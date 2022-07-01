@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **I like Football**
 
-<img align="right" alt="jpg" width="250px" src="https://c.tenor.com/M9E5UbWWy30AAAAC/luciano-luciano-neves.gif" />
+<img align="right" alt="jpg" width="250px" src="https://1.bp.blogspot.com/-JnAstHsfeJk/YVCC7QlVM0I/AAAAAAAAB-U/JTL3dr-pvSUOKPBv6VEe58LX6sf1WwKRACLcBGAsYHQ/s1280/Veja%2Bos%2BAnimes%2Bmais%2Besperados%2Bda%2BTemporada%2BOutono%2B2021%2BMANUAL%2BDO%2BOTAKU.webp" />
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
